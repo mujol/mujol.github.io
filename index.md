@@ -9,3 +9,5 @@ fights for justice and peace with his rifle "silver rifle" on his horse Iltschi.
 * brave
 * honest
 * just
+
+> Mein Bruder!
