@@ -11,3 +11,5 @@ fights for justice and peace with his rifle "silver rifle" on his horse Iltschi.
 * just
 
 > Mein Bruder!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/b/b6/Winnetou_1879.jpg?uselang=de"/>
